@@ -1,1 +1,1 @@
-# Vedac class app
+# Shri G.V. Iyer Veda Class
